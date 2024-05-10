@@ -3,6 +3,8 @@
 - 📫 You can reach me:
   1. Gmail -> www.paliwalnischal@gmail.com
   2. LinkedIn -> www.linkedin.com/in/nischal-paliwal-7603b6284
+  3. X -> https://x.com/nischal44443
+  4. Instagram -> https://www.instagram.com/nischal.paliwal
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Loves playing Table Tennis in leisure time.
 
